@@ -1,15 +1,19 @@
-
 # front2
 
-Maniac Alexandra
-
-
-
-
-
-
-
 Siegfried Arnold Aczberger
+laura
+Adina
+
+
+Ureche Marian
+
+
+Adrian Balaban
+
+
+
+
+
 
 
 
