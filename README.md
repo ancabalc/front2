@@ -2,4 +2,4 @@
 
 Laura
 Roxana
-Svetlana
+Svetlana Stegaru
